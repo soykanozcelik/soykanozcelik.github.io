@@ -1,1 +1,0 @@
-# soykanozcelik.github.io
